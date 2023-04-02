@@ -1,5 +1,6 @@
 # 💫 About Me:
-currently i'm doing mca from galgotias university 
+Hi. I'm Vishwas Pratap
+currently i'm pursuing MCA from Galgotias University 
 
 
 ## 🌐 Socials:
